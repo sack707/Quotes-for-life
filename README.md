@@ -7,4 +7,5 @@
 - *RULE NO.1 - Never lose Money. RULE NO. 2 - Never forget "RULE NO.1"* - WARREN BUFFET
 - *Take the stones people throw at you and use them to build a monument* - RATAN TATA
 - *"उत्तिष्ठत जाग्रत प्राप्य वरान्निबोधत ।”* - MAHABHARATA
+- *Many of life’s failures are people who did not realize how close they were to success when they gave up.*– Thomas A. Edison
 
